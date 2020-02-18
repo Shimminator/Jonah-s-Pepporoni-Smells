@@ -1,4 +1,2 @@
-# Jonah-s-Pepporoni-Smells
+# ITS A ME< POLIO
 Pepperoni
-Hello! Did you know Jonahs pepporoni Smells!
-Cam's Ham smells bad
